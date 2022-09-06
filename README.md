@@ -1,4 +1,4 @@
-# Find us on platforms:
+# Follow us on:
 
 [Medium](https://medium.com/@telleport)
 
