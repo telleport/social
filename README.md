@@ -2,6 +2,6 @@
 
 [Medium](https://medium.com/@telleport)
 
-[Telegram Channel](https://t.me/s/telleport_m)
+[Telegram](https://t.me/s/telleport_m)
 
 [Dribbble](https://dribbble.com/telleport)
